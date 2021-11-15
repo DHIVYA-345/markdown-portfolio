@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+Repla list of your favorite things.
+*!cat
+😁😁😁
+cat emoji
